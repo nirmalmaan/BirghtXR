@@ -26,8 +26,7 @@ BrightXR is a revolutionary educational platform designed to make science, mathe
 
 
 ## Video Link 
->> (https://youtu.be/EUm_6o_e8Kc)
-
+https://youtu.be/vFRrYnoEefc
 
 
 ##  Use Cases
